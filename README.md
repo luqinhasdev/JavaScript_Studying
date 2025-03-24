@@ -1,1 +1,1 @@
-# JavaScript_Studying
+Professor Bruno aKa Leon S. Kennedy. 💕
